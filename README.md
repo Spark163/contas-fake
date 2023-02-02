@@ -34,10 +34,10 @@ https://instagram.com/raposadesu_?igshid=Yzg5MTU1MDY=
 
 https://instagram.com/poni.cos_?igshid=Yzg5MTU1MDY= PERFIL CAIU
 
-https://instagram.com/iwazmi_?igshid=Yzg5MTU1MDY=
+https://instagram.com/iwazmi_?igshid=Yzg5MTU1MDY= PERFIL CAIU
 
 https://instagram.com/_marukeehl_?igshid=Yzg5MTU1MDY=
 
-https://instagram.com/ferr.nandapaz?igshid=Yzg5MTU1MDY=
+https://instagram.com/ferr.nandapaz?igshid=Yzg5MTU1MDY= PERFIL CAIU
 
 https://instagram.com/yoshimatsuworld_?igshid=Yzg5MTU1MDY=
