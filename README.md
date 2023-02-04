@@ -9,8 +9,6 @@ https://instagram.com/marichinee_?igshid=Yzg5MTU1MDY=
 
 https://instagram.com/jackawaii_?igshid=Yzg5MTU1MDY=
 
-https://instagram.com/yuufies_?igshid=Yzg5MTU1MDY=
-
 https://instagram.com/dezza.cosplay_?igshid=Yzg5MTU1MDY=
 
 https://instagram.com/nida.cosplay_?igshid=NTdlMDg3MTY=
@@ -60,6 +58,8 @@ https://instagram.com/yoshimatsuworld_?igshid=Yzg5MTU1MDY=
 https://instagram.com/deborah00milleruxk?igshid=Yzg5MTU1MDY= perfil marcando pessoas pra golpe
 
 https://instagram.com/hylandvillaneda?igshid=Yzg5MTU1MDY= perfil marcando pessoas pra golpe
+
+https://instagram.com/yuufies_?igshid=Yzg5MTU1MDY= PERFIL CAIU
 
 https://instagram.com/_nah.cordeiro?igshid=Yzg5MTU1MDY= PERFIL CAIU
 
