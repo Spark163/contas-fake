@@ -3,10 +3,6 @@
 
 https://instagram.com/nairpaganini_?igshid=YmMyMTA2M2Y=
 
-https://instagram.com/lucyd0ll__?igshid=Yzg5MTU1MDY=
-
-https://instagram.com/nahkamehameha_?igshid=NTdlMDg3MTY=
-
 https://instagram.com/_nysenelf?igshid=Yzg5MTU1MDY=
 
 https://instagram.com/mayugurumii?igshid=YmMyMTA2M2Y=
@@ -58,6 +54,10 @@ https://instagram.com/raposadesu_?igshid=Yzg5MTU1MDY=
 https://instagram.com/yoshimatsuworld_?igshid=Yzg5MTU1MDY=
 
 https://instagram.com/deborah00milleruxk?igshid=Yzg5MTU1MDY= perfil marcando pessoas pra golpe
+
+https://instagram.com/lucyd0ll__?igshid=Yzg5MTU1MDY= PERFIL CAIU
+
+https://instagram.com/nahkamehameha_?igshid=NTdlMDg3MTY= PERFIL CAIU
 
 https://instagram.com/s0ymarilynblxc?igshid=Yzg5MTU1MDY= PERFIL CAIU
 
